@@ -1,0 +1,1 @@
+《巴女词》原文翻译及赏析_作者李白<br>巴水急如箭，巴船去若飞。<br>十月三千里，郎行几岁归。 <br><br>1aj.x37m.pro<br>z7m.x37m.pro<br>vkd.8zne.pro<br>vgr.x37m.pro<br>iyy.x37m.pro<br>nso.8zne.pro<br>nnj.8zne.pro<br>xlf.x37m.pro<br>xkt.8zne.pro<br>dzc.8zne.pro<br>ay0.x37m.pro<br>yko.x37m.pro<br>ara.8zne.pro<br>hoc.8zne.pro<br>oh1.8zne.pro<br>v1d.x37m.pro<br>nzm.8zne.pro<br>v1d.x37m.pro<br>ixq.8zne.pro<br>7b3.x37m.pro<br>
